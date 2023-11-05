@@ -1,5 +1,5 @@
 <h2 align="center"> 
 
-Belajar GIT
+Belajar GIT hari pertama
 
 </h2>
