@@ -2,6 +2,10 @@
 <h3 align="center">Mahasiswa, Belajarlah Sampai Tidak Ada Yang Bisa Di Pelajari</h3>
 
 - ⚡ Fun fact **I Like Milf**
+- ⚡ Fun fact **I Like Gym**
+- ⚡ Fun fact **I Like Movie**
+- ⚡ Fun fact **I Like Protein**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
